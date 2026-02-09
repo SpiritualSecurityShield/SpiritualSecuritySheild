@@ -32,7 +32,7 @@ To build devices that support spiritual practice rather than disrupt it.
 - Spiritual practitioner focused on herbalism, candle work, intuition, and energetic protection
 
 ## Contact
-Email: wendy.walton@snhu.edu  
+Email: spiritual.s.shield3@gmail.com 
 GitHub: https://github.com/SpiritualSecuritySheild  
 
 If you are here, it isn’t by coincidence.  
